@@ -30,8 +30,17 @@
 
 10.其他待整理资料
 
+### 常用网站
+1.西安交通大学研究生招生信息网 http://yz.xjtu.edu.cn
 
-###后记
+2.王道论坛 http://www.cskaoyan.com/forum.php
+
+3.天勤论坛 http://www.csbiji.com/forum.php
+
+4.西安交通大学官网 http://www.xjtu.edu.cn
+
+
+### 后记
 
 以梦为马，不负韶华
 
